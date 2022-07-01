@@ -1,2 +1,2 @@
-# aneeshawrites
-Aneesha writes is a website dedicated to Aneesha Nayak's writing works as she portrays her style as an author displaying her neat works and contacts. Please check it out!
+# aneeshadraws
+Aneesha draws is a wesbite where I display my artwork in a virtual gallery full of creativity, passion, and talent! Let me know how you like the site!
